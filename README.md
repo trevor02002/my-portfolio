@@ -1,3 +1,3 @@
 HI AM TREVOR KIRIMI
 
-i am a student in moringa school
+i am a student in moringa school(https://moringaschool.com/)
